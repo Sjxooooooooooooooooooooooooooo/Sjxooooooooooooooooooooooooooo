@@ -1,4 +1,4 @@
-不做！神里！绫华！的狗！（虚心）
+我不玩Minecraft（
 
 <!---
 Sjxooooooooooooooooooooooooooo/Sjxooooooooooooooooooooooooooo is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
